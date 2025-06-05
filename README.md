@@ -2,4 +2,4 @@
 WIP
 
 ## fun fact
-victor dresses up as santa to touch little kids every christmas 🎅⛪🎄
+aryan likes to lick the toilet seat, but you know... he still my friend despite this very kinky side of him
